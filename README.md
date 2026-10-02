@@ -1,1 +1,2 @@
-Link YouTube : https://youtu.be/yBuo41oLLRI?si=EU0V0Q6QoyAS_s_D
+Tugas Akhir Minggu 1
+- Link YouTube : https://youtu.be/yBuo41oLLRI?si=EU0V0Q6QoyAS_s_D
